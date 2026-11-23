@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Reza Shah Mohammad Zillullah
 - 👀 I’m an Electrical and Electronics Engineer
 - 🌱 I’d been working in Healthacre sector since 1995
-- 💞️ Presently am working as Independent Consultant at our Consultancy Firm - Vartex Engineering. 
+- 💞️ Presently am working as Independent Consultant at our Consultancy Firm - Vartex Engineering.(www..vartexengg.com) 
 - 📫 How to reach me ...zillullah@vartexengg.com or zillullah@gmail.com
 
 <!---
